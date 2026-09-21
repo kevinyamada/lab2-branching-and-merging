@@ -41,6 +41,7 @@
 ## Decoration
 
 - Chocolate curls
+- Sprinkles
 
 ## Instructions
 
